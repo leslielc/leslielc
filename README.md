@@ -1,4 +1,11 @@
-### Hi there 👋
+### Hi there,
+
+I'm currently learning at Ravenclaw, Hogwarts School of Witchcraft and Wizardry.
+My major is Astronomy, not astrology, however, stars could really affect our life.
+
+Leslie,
+21.3.27
+
 
 <!--
 **leslielc/leslielc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
