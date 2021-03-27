@@ -1,10 +1,12 @@
-### Hi there,
+### Hi there, I'm Chang
 
-I'm currently learning at Ravenclaw, Hogwarts School of Witchcraft and Wizardry.
-My major is Astronomy, not astrology, however, stars could really affect our life.
+I'm a student from House Ravenclaw, Hogwarts School of Witchcraft and Wizardry.
 
-Leslie,
-21.3.27
+I'm currently learning Astronomy, not astrology from centaurs.
+
+I believe stars will affect our life; gravity attracts us all!
+
+
 
 
 <!--
