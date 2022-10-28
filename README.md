@@ -2,8 +2,6 @@
 
 I'm a student from House Ravenclaw, Hogwarts School of Witchcraft and Wizardry.
 
-I'm currently learning Astronomy, not astrology from centaurs.
-
 I believe stars will affect our life; gravity attracts us all!
 
 
