@@ -1,8 +1,5 @@
 ### Hi there, I'm Chang
 
-I'm a student from House Ravenclaw, Hogwarts School of Witchcraft and Wizardry.
-
-I believe stars will affect our life; gravity attracts us all!
 
 
 
